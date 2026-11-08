@@ -6,3 +6,4 @@ In the spare time of one's life, realize the dream of one's life
 
 ### 联系我们
 QQ群@ 875202966  _加群请备注github_
+QQ开发者交流群@ 1040667537
